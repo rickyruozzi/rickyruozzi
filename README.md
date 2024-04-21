@@ -1,1 +1,2 @@
 - 📫 How to reach me @ricky_ruozzi on ig
+- @ruozziriccardo4@gmail.com 
